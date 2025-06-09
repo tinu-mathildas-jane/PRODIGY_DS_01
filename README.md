@@ -35,6 +35,6 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[Tinu Mathildes Jane S X ](www.linkedin.com/in/tinu-mathildes-jane/)(LinkedIn)</a>
+- <a>[Tinu Mathildes Jane S X ](https://www.linkedin.com/in/tinu-mathildes-jane/)(LinkedIn)</a>
 - Email: tinu.mathides@gmail.com
 
